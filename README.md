@@ -1,4 +1,5 @@
-![yuzuha wallpaper pc](https://github.com/user-attachments/assets/65dd4a52-a44d-4edd-8ba9-e1238b15d320)
+
+![download](https://github.com/user-attachments/assets/c33b2faf-bd69-47f8-b0b6-d3ddde4c3f76)
 
 
 <!--
