@@ -1,5 +1,5 @@
 
-![download](https://github.com/user-attachments/assets/c33b2faf-bd69-47f8-b0b6-d3ddde4c3f76)
+![download](https://github.com/user-attachments/assets/60d401e0-d691-417c-8fea-2540d47630b3)
 
 
 <!--
